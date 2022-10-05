@@ -35,5 +35,3 @@ Een heerlijke en feestelijke no bake taart met vanille en je favoriete koekjes: 
 9 Verdeel de rest van de stukjes bokkenpoot over de bovenkant en garneer met een hele in het midden.
 
 10 Zet de bokkenpootjestaart minimaal 4 uur in de koelkast, het liefst een hele nacht. Maximaal 3 dagen te bewaren in de koelkast.
-
-11 Dit recept is naar een idee van [Leukerecepten](https://www.leukerecepten.nl/recepten/bokkenpootjestaart/)
