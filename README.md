@@ -2,7 +2,7 @@
 
 Een heerlijke en feestelijke no bake taart met vanille en je favoriete koekjes: bokkenpootjes. Heel makkelijk zelf te maken in 35 minuten.
 
-[!afbeelding](https://www.leukerecepten.nl/wp-content/uploads/2017/09/bokkenpootjesstaart-h.jpg)
+![afbeelding](https://www.leukerecepten.nl/wp-content/uploads/2017/09/bokkenpootjesstaart-h.jpg)
 
 ## Benodigheden
 
